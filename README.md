@@ -11,7 +11,6 @@
 😄 Pronouns: He/Him
 
 ⚡ Fun fact: I'm passionate about combining creativity with data to tell compelling stories and solve complex problems. 
-
 - - - - - - - - - - - - - - - - - - 
 Data Analysis Projects 
 
